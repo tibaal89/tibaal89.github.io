@@ -1,5 +1,9 @@
 title: tibaal89.com
 baseurl: ""
-#url: "https://www.tibaal89.com" 
+url: "https://www.tibaal89.com"
+
+google_analytics: UA-68102464-4
+disquss:
+    shortname: "https-www-tibaal89-com"
 
 markdown: kramdown
