@@ -3,7 +3,7 @@ baseurl: ""
 url: "https://www.tibaal89.com"
 
 google_analytics: UA-68102464-4
-disquss:
+disqus:
     shortname: "https-www-tibaal89-com"
 
 markdown: kramdown
