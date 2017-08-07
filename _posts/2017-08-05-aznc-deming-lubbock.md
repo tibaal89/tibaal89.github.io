@@ -18,3 +18,6 @@ To my surprise, the drivers of Texas were ramarkably friendly.
 ![](/assets/img/2017-08-05-aznc-deming-lubbock/IMG_4752.JPG)
 
 I had a stretch goal in mind of making it to Wichita Falls, but maybe 30 minutes out of Lubbock I crashed hard (read: figuratively) and started getting sleepy. No bueno, Lubbock for the night it is. Lost another hour to time zone changes, but this time I'm getting to bed DAMN early.
+
+414 miles in 8:46  
+[AZNC 8/5/17 - Rever](https://a.rever.co/embed/rides/604029)

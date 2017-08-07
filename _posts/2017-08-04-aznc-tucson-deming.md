@@ -12,3 +12,6 @@ Got a head start ahead of tomorrow's planned start of the trip. This was my firs
 Temps were cool, rain was avoided - so far so good. Long day tomorrow.
 
 ![](/assets/img/2017-08-04-aznc-tucson-deming/IMG_4740.JPG)
+
+220 miles in 3:36  
+[AZNC 8/4/17 - Rever](https://a.rever.co/embed/rides/602782)
