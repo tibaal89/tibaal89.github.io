@@ -5,6 +5,8 @@ date:   2017-08-06
 categories: Motorcycle
 ---
 
+[AZNC 8/6/17 - Rever](https://a.rever.co/embed/rides/606137)
+
 Today's shenanigans fall into two very distinct phases. Phase 1: I wonder if my rain gear will keep me dry. Phase II: NOPE.
 
 I'd briefly tested it in Tucson during a torrential downpour but only at low speeds. High speeds are aparently a substantially differnt situation. I'm willing to attribute the failure to user error, I think I need to be more careful about how the neck goes together. The gear itself is pretty highly rated stuff from Tour Master. 
@@ -18,6 +20,3 @@ Unfortunately there will be no Arkansas welcome sign picture. I briefly got on I
 EDIT: oh ho! I just realized I'm sitting a few hundred yards from the border as I type this. After the fact Arkansas sign!
 
 ![](/assets/img/2017-08-06-aznc-lubbock-texarkana/IMG_4767.JPG)
-
-501 miles in 10:06  
-[AZNC 8/6/17 - Rever](https://a.rever.co/embed/rides/606137)
