@@ -23,7 +23,7 @@ I stayed a couple nights at the [Historic Brookstown Inn](http://www.brookstowni
 
 ![](/assets/img/2017-08-09-blue-ridge-parkway-graylyn-estate/IMG_4818.JPG)
 
-Susan and I ended up in the 'bungalows' right across the street for whatever reason. Great accomodations.
+Susan and I ended up in the 'bungalows' right across the street for whatever reason. Great accommodations.
 
 ![](/assets/img/2017-08-09-blue-ridge-parkway-graylyn-estate/IMG_4816.JPG)
 
